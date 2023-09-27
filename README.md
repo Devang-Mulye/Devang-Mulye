@@ -5,6 +5,7 @@
 ![1sadsadas](https://github.com/Devang-Mulye/Devang-Mulye/assets/84469779/26546a0b-a915-4c6f-a21a-66d7ca7f3c8e)
 
 <br/>
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/i_loved_ub4) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://in.linkedin.com/in/devang-mulye-3bb17722b) 
 
